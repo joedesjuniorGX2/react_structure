@@ -10,9 +10,7 @@ _**Como usar**_
 
 - Commitar documento e apenas isto!
 
-_**Dúvidas: 
 
+Saber mais: 
 - joedesjunior@gmail.com
 - https://www.linkedin.com/in/joedes-junior-965183198/
-
-**_
